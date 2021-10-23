@@ -1,3 +1,6 @@
 # mrjamespreston.github.io
 
-I guess the tilde.club queue has stopped moving.
+Online personas are as interesting as offline personas.
+Therefore this is your lot.
+
+Go for a walk.
